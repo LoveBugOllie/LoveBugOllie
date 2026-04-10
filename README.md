@@ -1,4 +1,4 @@
-hi I'm Ollie I go by he'him
+
 
 <!--
 **LoveBugOllie/LoveBugOllie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
