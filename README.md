@@ -1,4 +1,4 @@
-HAIIII im ollie I go by he'him sighs im lazy ima finish it later🥲
+HAIIII im ollie I go by he'him I'm 14 i normally sit by friends or alone uh uh uhhh finishing it later,,,,
 
 <!--
 **LoveBugOllie/LoveBugOllie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
