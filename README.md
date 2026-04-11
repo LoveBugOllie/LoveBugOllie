@@ -1,4 +1,4 @@
-HAIIII im ollie I go by he'him I'm 14 i normally sit by friends or alone uh uh uhhh finishing it later,,,,
+HAIIII im ollie I go by he'him or any other Pronouns but i mostly prefer he'him always w2i im normally offtab a lot of the time, you can always c*h with me i normally sit with friends or alone sometimes uh uhhhhhhhhh I will finish later,,
 
 <!--
 **LoveBugOllie/LoveBugOllie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
