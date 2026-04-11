@@ -1,5 +1,5 @@
-HAIIII im ollie I go by he'him or any other Pronouns but i mostly prefer he'him always w2i im normally offtab a lot of the time, you can always c*h with me i normally sit with friends or alone sometimes. Just know I'm very very awkward when someone first talks to me but after a while I won't be as awkward im also a very nice person when you get to know me, I also hide people freely but I do it rarely that's only if someone's rude to me or one of my friends or any other reason.
-
+HAIIII im ollie I go by he'him or any other Pronouns but i mostly prefer he'him always w2i im normally offtab a lot of the time , you can always c*h with me i normally sit with friends or alone sometimes. Just know I'm very very awkward when someone first talks to me but after a while I won't be as awkward im also a very nice person when you get to know me , I also hide people freely but I do it rarely that's only if someone's rude to me or one of my friends or any other reason.  
+           Fandoms im in/interests.           creepy pasta , Fnaf , barley in dandys world i just like the characters I don't play the game... , Princess in the Frog , ANY DISNEY PRINCESSSSSS , kirbyy planet robot , Mario games i dunno... ,
 <!--
 **LoveBugOllie/LoveBugOllie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
