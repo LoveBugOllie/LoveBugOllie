@@ -8,5 +8,5 @@
       And if you want me to try a new game or a fnadom to get in I will try it out I want to be In more fandoms or more games or anyhting.<p align="center">
         NUMBER 1 BUG LOVER BTW NO ONE CAN BEAT ME ON RHAT. <p align="center">
           NUMBER 1 FRIEND @PENNYWISEIT that's there github giggling<p align="center">
-    Also I get upset pretty easly not really at people I get upset over small stuff sometimes and overwhelmed very easly<p align="center">
+    Also when i get awkward somwetimes i can get nervous and i get waht i like to call nervous jitters were im just neverouse and just jitter at the same time and still awkward a bit but mostly neverouse , i do also get upset and overwhelmedreally easly normally when that happens its not directed towards someone mostly just irl stuff.<p align="center">
     Thank you for reading this and i hope you have a lovely dayyyyy.
