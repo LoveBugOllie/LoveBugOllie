@@ -2,11 +2,11 @@
 <p align="center">
   Fandoms im in/interests.           creepy pasta , Fnaf , Princess in the Frog , ANY DISNEY PRINCESSSSSS , kirbyy planet robot ,Resident Evil ive only seen 9 sadly,,, Mario games , I'm not counting dandys world but ima put it up here never played it just think the characters some' are cool lookin uhh [CRK fandom iwec im not in this fandom though] Sanrio , GARFIELD , nightmare before Christmas heh ,  TIM BURTON OFC♥️ uhh i dunno what else... , <p align="center">
     <p align="center">Dni's. 
-[under 12 iwc along with dni 20+]people who mock other people for "fun" , hate on someone for liking a certain thing , or just rude people in general ,homophobes , Dark shippers , and whatever else I decide to put in here.<p align="center">
+[under 12 iwc along with 20+]people who mock other people for "fun" , hate on someone for liking a certain thing , or just rude people in general ,homophobes , Dark shippers , and whatever else I decide to put in here.<p align="center">
   I'm also a very big yapper i love to talk about everything like my day or a new interst I have or anything else and I love it when people tell me about there day or about anything. <p align="center">
     Also i dont like drama i dont like it when someone has something bad to say about another person irl or not and come to me about the mess I dont like drama at all so don't come to me about drama but if you mad , sad or anything happening and you need someone to talk to that's different I will always try to help someone when they are feeling down in anyway. <p align="center">
-      And if you want me to try a new game or a fnadom to get in I will try it out I want to be In more fandoms or more games or anyhting.<p align="center">
-        NUMBER 1 BUG LOVER BTW NO ONE CAN BEAT ME ON RHAT. <p align="center">
+      And if you want me to try a new game or a fnadom to get in I will try it out I want to be In more fandoms or more games or anyhting :p.<p align="center">
+        NUMBER 1 BUG LOVER BTW NO ONE CAN BEAT ME ON THAT. <p align="center">
           NUMBER 1 FRIEND @PENNYWISEIT that's there github giggling<p align="center">
     Also when i get awkward somwetimes i can get nervous and i get waht i like to call nervous jitters were im just neverouse and just jitter at the same time and still awkward a bit but mostly nervous , i do also get upset and overwhelmed really easly normally when that happens its not directed towards someone mostly just irl stuff.<p align="center">
     Thank you for reading this and i hope you have a lovely dayyyyy.
