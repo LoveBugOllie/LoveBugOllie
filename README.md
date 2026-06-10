@@ -8,5 +8,5 @@
       And if you want me to try a new game or a fnadom to get in I will try it out I want to be In more fandoms or more games or anyhting :p.<p align="center">
         NUMBER 1 BUG LOVER BTW NO ONE CAN BEAT ME ON THAT. <p align="center">
           NUMBER 1 FRIEND @PENNYWISEIT that's there github giggling<p align="center">
-    Also when i do get awkward so sometimes i can go quiet for a bit that normally happens , i do also get upset and overwhelmed really easly normally when that happens its not directed towards someone mostly just irl stuff.<p align="center">
+  i do also get upset and overwhelmed really easly normally when that happens its not directed towards someone mostly just irl stuff.<p align="center">
     Thank you for reading this and i hope you have a lovely dayyyyy.
