@@ -2,7 +2,7 @@
 <p align="center">
   Fandoms im in/interests.           creepy pasta , Fnaf , Princess in the Frog TIANNAAA , ANY DISNEY PRINCESSSSSS , kirbyy planet robot , Mario games , uhh Sanrio , GARFIELD , nightmare before Christmas heh ,  TIM BURTON OFC♥️ spiderman into spider verse and spiderman across spider verse , miles morales spider man , Gorillaz FANDOM iwcautionnn cough,, , Teen Titan , uhh i dunno what else... , <p align="center">
     <p align="center">Dni's. 
-[under 12 iwc along with dni 20+]people who mock other people for "fun" , hate on someone for liking a certain thing , or just rude people in general ,homophobes , Dark shippers , and whatever else I decide to put in here.<p align="center">
+[under 12 iwc along with dni 20+]people who mock other people for "fun" , hate on someone for liking a certain thing , or just rude people in general , homophobes , Dark shippers , Zoophiles ,  and whatever else I decide to put in here.<p align="center">
   I'm also a very big yapper i love to talk about everything like my day or a new interst I have or anything else and I love it when people tell me about there day or about anything. <p align="center">
     Also i dont like drama i dont like it when someone has something bad to say about another person irl or not and come to me about the mess I dont like drama at all so don't come to me about drama but if you mad , sad or anything happening and you need someone to talk to that's different I will always try to help someone when they are feeling down in anyway. <p align="center">
       And if you want me to try a new game or a fnadom to get in I will try it out I want to be In more fandoms or more games or anyhting :p.<p align="center">
